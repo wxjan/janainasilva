@@ -8,7 +8,7 @@
 
 - 📝 buscando aprender tudo relacionado a front-end para atuar e migrar de área ♡
 
-- 📫 para entrar em contato: **janainasilva.1993@outlook.com** 
+- 📫 para entrar em contato : **janainasilva.1993@outlook.com** 
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/janaina-silva-986675214/)
 
