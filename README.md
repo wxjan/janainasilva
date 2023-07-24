@@ -8,7 +8,7 @@
 
 - 📝 buscando aprender tudo relacionado a front-end para atuar e migrar de área ♡
 
-- Já conclui alguns cursos e meus certificados encontra-se no linkedin abaixo. 
+- já conclui alguns cursos e meus certificados encontra-se no linkedin abaixo. 
 
 - 📫 para entrar em contato : **janainasilva.1993@outlook.com** 
 
